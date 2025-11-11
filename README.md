@@ -2,13 +2,13 @@
 
 #### Hindi
 
-what did swaroopnakha wish ravan on rakhi?\\
+what did swaroopnakha wish ravan on rakhi?\n
 happy rakshash bandhan
 
-which song did amitabh sing to woo jaya bhaduri?\\
+which song did amitabh sing to woo jaya bhaduri?\n
 national anthem: jaya he, jaya he 
 
-why won't trump ever visit Afghanistan?\\
+why won't trump ever visit Afghanistan?\n
 Because they have a tali-ban
 
 Mahabhrata translated...
