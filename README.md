@@ -1,5 +1,22 @@
 ### Humor
 
+Where do Indians go to make money?  
+Manipur
+
+Why is the computer so cold?  
+It left the Windows open
+
+Which computer sings?  
+A Dell
+
+Two behaviorists have sex. One turns to the other and says, "That was good for you; how was it for me?"  
+
+Jean-Paul Sartre is writing Being and Nothingness at a local cafe when the barista approaches and asks if he wants anything.
+Sartre says, "Yes, I'd like a coffee, please — no milk."  
+The barista responds, "I'm sorry, monsieur. We're out of milk. Would you like it without cream instead?"  
+
+A man walks up to a solipsist and repeatedly pummels him. "Why are you hitting yourself?!"
+
 #### Hindi
 
 what did swaroopnakha wish ravan on rakhi?  
