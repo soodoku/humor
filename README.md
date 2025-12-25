@@ -54,6 +54,11 @@ A man walks up to a solipsist and repeatedly pummels him. "Why are you hitting y
 
 15. Can the location of my bathroom be considered my “I pee address?”
 
+16. I'd tell you a joke about UDP, but you probably wouldn't get it.
+
+17. I was telling my workmates a TCP joke the other day; I had to keep repeating it slower and slower until they got it.
+18. 
+
 #### Hindi
 
 1. what did swaroopnakha wish ravan on rakhi?  
