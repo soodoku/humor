@@ -52,6 +52,8 @@ A man walks up to a solipsist and repeatedly pummels him. "Why are you hitting y
 14. Why do Java developers wear glasses?
     Because they don’t C#.
 
+15. Can the location of my bathroom be considered my “I pee address?”
+
 #### Hindi
 
 1. what did swaroopnakha wish ravan on rakhi?  
