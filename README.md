@@ -84,5 +84,7 @@ Monty Python Style: "Right, so picture this: Complete darkness. Nothing. Nada. N
 
 7. Which city is the famous Bollywood Director Subhash Ghai from?
    Shanghai
-   
+
+8. Siddhartha reaches Nirvana. A young devotee enters and says, "Hey Buddha, teach me the truth" 
+Buddha closes his eye. "The first noble truth is that you should never call a 35-year old buddha.
 
