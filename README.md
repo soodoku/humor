@@ -88,3 +88,7 @@ Monty Python Style: "Right, so picture this: Complete darkness. Nothing. Nada. N
 8. Siddhartha reaches Nirvana. A young devotee enters and says, "Hey Buddha, teach me the truth" 
 Buddha closes his eye. "The first noble truth is that you should never call a 35-year old buddha.
 
+9. What is Mr. Chawla's favorite vacation destination? Dal lake.
+
+10. What place are cauliflower lovers afraid of going? Gobi desert.
+
