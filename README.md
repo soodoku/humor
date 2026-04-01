@@ -95,4 +95,7 @@ Buddha closes his eye. "The first noble truth is that you should never call a 35
 11. What is the brand under which Haldiram has launched its line of fitness snacks?
     Healthy Ram
 
+12. I was halfway through the khoya paneer when I called the waiter over and said, “Bhai, I’ve been digging through this gravy for five minutes. Where’s the paneer?”
+    He nodded calmly and said, “Sir, the dish is called khoya paneer."
+
 
